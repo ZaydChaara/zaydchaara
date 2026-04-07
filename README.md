@@ -6,7 +6,7 @@
 
 - 🔭 I’m a Software Engineer (Mostly backend in Angular/React)
 
-- 👨🏻‍💻 I’m currently working on BMC AIU Loaning Equipments Project
+- 👨🏻‍💻 I’m currently working on as Freelancer for Saudi/Malaysian companies 
 
 - 🫶 With a love for Traveling 🗽, Food 🍱, and Working-out 🤸‍♂️.
   
